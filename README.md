@@ -6,4 +6,4 @@
 > ― Adam M. Grant, Think Again: The Power of Knowing What You Don't Know
 
 
-<p>📫 Reach me: www.linkedin.com/in/karolinajg</p>
+<p>📫 www.linkedin.com/in/karolinajg</p>
